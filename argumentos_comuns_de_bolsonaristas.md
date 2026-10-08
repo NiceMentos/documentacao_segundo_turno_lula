@@ -38,4 +38,11 @@ Seu caso, porém, terá de ser re-analizado desde o início, devido a prova da p
 - Audios entre Lula e Dilma, pouco após o anúncio que ele assumiria o Ministério da Casa Civíl, falando sobre o termo de posse que estaria sendo assinado pelo Lula em "caso de necessidade"(Necessidade essa que é comumente interpretada como "caso ele não consiga comparecer a cerimônia de oficialização"), foram liberados ilegalmente após Moro ser delarado como parcial no caso, e incompetênte para o vistoriar.
 - Moro, em férias, sem jurisdição tentou pessoalmente em 2018 impedir uma ordem de soltura concedida pelo desembargador Rogério Favreto. O STF considerou isso uma clara demonstração de interesse pessoal em manter Lula preso.
 - Moro negou à defesa de Lula a produção de provas complementares que poderiam ter ajudado a esclarecer os fatos. O STF considerou isso como mais provas de seu envolvimento pessoal no caso.
-- 
+
+Ponto é, defender o Lula, mesmo com todos esses argumentos, não é o caminho.
+Para muitos, Lula é ladrão, corrupto, e é isso que ele para sempre será.
+O caminho está em destruir o Flávio.
+
+# Escândalos do Flávio
+
+## 
