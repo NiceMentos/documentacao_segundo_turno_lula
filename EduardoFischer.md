@@ -56,6 +56,10 @@ Uma das linhas de investigação busca esclarecer se os valores enviados ao fund
 <img width="489" height="791" alt="image" src="https://github.com/user-attachments/assets/8b118c76-fa33-40d8-a6ed-9c5403a8d6aa" />
 
 
+<img width="337" height="369" alt="image" src="https://github.com/user-attachments/assets/69c09faf-719f-4c67-b776-db3f44222231" />
+
+
+
 ## Resumo
 
 Eduardo Fischer assume a comunicação da pré-campanha de Flávio Bolsonaro em um momento de forte pressão sobre a imagem do senador. Com ampla experiência na publicidade comercial e reconhecimento nacional e internacional, Fischer chega para substituir Marcello Lopes e conduzir a comunicação da pré-campanha durante a crise envolvendo a relação de Flávio com Daniel Vorcaro.
